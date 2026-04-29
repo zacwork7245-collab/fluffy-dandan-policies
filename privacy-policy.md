@@ -69,4 +69,4 @@ reflect any changes.
 
 For questions about this Privacy Policy:
 
-Email: chongzijun@gmail.com
+Email: zacwork7245@gmail.com
